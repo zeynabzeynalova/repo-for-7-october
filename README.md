@@ -1,1 +1,0 @@
-# repo-for-7-october
